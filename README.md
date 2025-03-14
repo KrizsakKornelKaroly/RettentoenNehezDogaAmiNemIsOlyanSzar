@@ -1,0 +1,2 @@
+# RettentoenNehezDogaAmiNemIsOlyanSzar
+Asszem lyó
